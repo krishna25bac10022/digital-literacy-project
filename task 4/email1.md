@@ -1,5 +1,6 @@
 
 Dear Sir/Ma’am,
+
 Subject: Request for Leave on 26 March
 
 I hope you are doing well. I am writing to inform you that I will not be able to attend classes on 26 March due to a personal reason that requires my immediate attention at home.
